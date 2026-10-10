@@ -215,4 +215,4 @@ Return of the King is available as a full free version with all features and upd
 Don't miss out on this chance to save Middle Earth! Download Return of the King today and embark on your adventure!
 
 ---
-**Last updated:** 2026-10-09 23:37:29 UTC
+**Last updated:** 2026-10-10 02:55:22 UTC
